@@ -1,0 +1,1 @@
+# kitlesel-fonlama-portfoy-yonetimi
